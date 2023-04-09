@@ -1,4 +1,4 @@
-Original Musid: https://www.youtube.com/watch?v=R1eyjhTmErw&ab_channel=AtomicHeart
+Original Music: https://www.youtube.com/watch?v=R1eyjhTmErw&ab_channel=AtomicHeart
 
 ## Learn More
 
